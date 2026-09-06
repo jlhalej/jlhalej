@@ -1,4 +1,4 @@
-I'm a technical-commercial consultant — currently Account Manager at SysAid
+I'm an IT consultant — currently Account Manager at SysAid
 Technologies, with a decade-plus background as an Account Executive, Sales
 Engineer, and Solutions Architect.
 
